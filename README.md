@@ -1,4 +1,4 @@
-# README
+# README👋
 # Hi there, I'm Hailay Kidu Teklehaymanot 👋
 
 🚀 **About Me:**
